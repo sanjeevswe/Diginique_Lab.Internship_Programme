@@ -1,1 +1,1 @@
-# Diginique_Lab.Internship_Programme
+# Diginique_Lab.Internship
